@@ -6,7 +6,7 @@ Primary Purpose - Weight Loss
 Results — In 1-2 Months
 Customer Reviews - 4.95/5 (Based on 6,587 reviews!)
 
-‍Advantages:
+‍Advantages
 
 ‍✅ Burn Fat for Energy not Carbs!
 ✅ Triggers Fat-Burning Ketosis!
